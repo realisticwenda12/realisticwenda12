@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning all
 - 💞️ I’m looking to collaborate on Computer Destroyer
 - 📫 How to reach me esbatu1666@gmail.com
-- 😄 Pronouns: huh?
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: Best computer destroyer be like.
 
 <!---
